@@ -1,0 +1,1 @@
+Toto je lahký script ktorý umožni sledovat YouTube na Akomkolvek prope TV
